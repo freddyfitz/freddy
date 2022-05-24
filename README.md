@@ -1,0 +1,1 @@
+These are a few examples of articles and copy written for clients. The subjects and tones get ranged widely. All the articles get optimized for increasing their status on search engines. I receive a brief from the client and customize accordingly. 
